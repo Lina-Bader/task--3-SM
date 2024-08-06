@@ -25,3 +25,8 @@ URL used in the code:
 •	https://s-m.com.sa/f.html
 •	https://s-m.com.sa/b.html
 
+You can see the application images in  file: ‏‏‏‏‏‏ST- task2-w3 codes - follow
+
+
+
+
